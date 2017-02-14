@@ -1,4 +1,5 @@
 # donutblikethat
+it is simple... don't act how you were before this was sent to you
 
 # what the fuck? this offends me!
 
